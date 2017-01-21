@@ -1,4 +1,4 @@
-# lazyvpn
+# lazyvpn free download(懒人免费vpn网络加速器下载)
 lazyvpn free download(懒人免费vpn网络加速器下载)
 
 国内外万兆网络线路，畅游世界无阻！
