@@ -3,6 +3,8 @@ lazyvpn free download(懒人免费vpn网络加速器下载)
 
 国内外万兆网络线路，畅游世界无阻！
 
+采用l2tp/ipsec 协议，支持mac,iphone,andriod,windows,linux全平台，
+
 每天送免费流量！ 
 
 天天送！可累加！   
