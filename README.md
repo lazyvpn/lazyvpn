@@ -17,6 +17,6 @@ h1z1国人群: 612287636(免费服务提供)
 
 团队邮件:lazyvpn.net@gmail.com 
 
-官网地址:www.lazyvpn.net
+官网下载:www.lazyvpn.net
 
-pCloud:https://my.pcloud.com/publink/show?code=XZ2oRKZCeWvE23YF4jafumMnPYEYyhzwQV7
+pCloud下载:https://my.pcloud.com/publink/show?code=XZ2oRKZCeWvE23YF4jafumMnPYEYyhzwQV7
