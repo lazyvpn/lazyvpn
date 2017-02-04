@@ -13,12 +13,8 @@ lazyvpn free download(懒人免费vpn网络加速器下载)
 
 推荐1000人注册,送1000G流量！ 
 
-QQ群:186213021，steam游戏群:612942971 
-
-h1z1国人群: 612287636(免费服务提供) 
-
-团队邮件:lazyvpn.net@gmail.com 
-
 官网下载:www.lazyvpn.net
 
-pCloud下载:https://my.pcloud.com/publink/show?code=XZ2oRKZCeWvE23YF4jafumMnPYEYyhzwQV7
+pCloud下载:https://my.pcloud.com/publink/show?code=XZQdblZyDbBlPlhWmFflBuiQfxh7f0JA8By
+
+发送邮件到:lazyvpn.net@gmail.com 获取更多资讯信息，你懂的！
